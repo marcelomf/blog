@@ -1,0 +1,27 @@
+---
+title: Viver
+tags:
+  - economia
+  - marcelo m. fleury
+  - metodologia
+excerpt: ''
+date: 2019-11-23 04:41:00
+---
+
+Escrevo este texto não na intenção de guiar alguém, mas apenas por vontade de compartilhar algumas ideias. Todo aquele que pretende guiá-lo, desconfie! Por séculos, religiões, governos e “sábios” buscaram determinar diretrizes, estabelecer caminhos e exemplos a serem seguidos. Toda e qualquer tentativa de padronização do comportamento humano é falha, somos intimamentes diferentes uns dos outros e as mesmas ações que uns fazem, possuem diferentes consequências para outros. Por exemplo, para um soldado de guerra ou traficante acostumado a matar outro, ao matar mais um, este será apenas mais um, já para um pai de família que comete o seu primeiro homicídio, este sofrerá outro impacto, ou seja, uma mesma ação praticada por seres diferentes possuem reações diferentes de um para o outro, na verdade, mesmo que ambos fossem policiais ou traficantes, ao pararem para refletir intimamente sobre o ato, ambos teriam conclusões diferentes e emoções distintas, mesmo que para ambos os contextos fossem similares.  
+  
+As situações sempre terão contextos distintos, por mais similares que possam parecer, ou seja, vivemos em um mundo com indivíduos diferentes e com ações e consequências distintas, se colocar no lugar do outro é simplesmente utópico(porem necessário), tirar conclusões acerca da vida alheia é comumentemente um ato falho. Os relacionamentos são sempre uma escolha, caberá a você compreender a complexidade das pessoas e decidir se relacionar ou não. É mais importante conhecer a si mesmo do que outro.  
+  
+Durante toda a vida, teremos erros e acertos, viveremos bons e maus momentos, a vida é sim feita de altos e baixos para todos, independente de qualquer condição, seja ela social, emocional ou espiritual. Sempre existiram pessoas mais preparadas para as adversidades da vida, este preparo é condicionado desde o seu nascimento, depende da sua criação, dos ambientes em que você esteve, das influências que você teve(boas e más), das suas escolhas e de tudo aquilo que lhe impactou de alguma forma.  
+  
+Você nunca terá controle sobre a sua vida, pois viver nada mais é do que se expor ao outro e o outro jamais poderá ser controlado, no máximo contido. Tenho a certeza que a maior capacidade que alguém pode ter é a capacidade de ler e entender o próximo, saber o que determinada pessoa pode lhe oferecer de bom e de ruim e a partir daí extrair ao máximo as coisas boas daquela pessoa e conter ao máximo as coisas ruins. Saber se relacionar é essencial. Manter o equilíbrio diante de uma situação difícil, manter a compostura e elegância lhe trarão sempre mais benefícios do que se render a barbárie. Situações conflituosas são excelentes oportunidades para estabelecer níveis de superioridade, sim, superioridade! Evitar ou mediar conflitos será sempre uma ação superior ao embate.  
+  
+Entenda, saber ler e entender o próximo não significa se relacionar com o próximo. Relações de abuso devem sempre ser evitadas, a grande maioria das pessoas não enxergam verdadeiramente umas às outras, apenas a si próprio, não queira mudar o outro, entenda o porque você está em uma relação abusiva, mude o que tem que mudar e saia desta relação o quanto antes, mude você e não o outro, cobre de você e não do outro. Queira sempre estar ao lado das pessoas que te fazem bem, que verdadeiramente querem o seu bem, serão poucas, mas elas existem. Conforme-se em ter poucas relações substanciais e entenda que tais relações demandam tempo e energia, ajude o máximo de pessoas que você puder, sem jamais se prejudicar por isso, ou seja, crie e tenha condições de ajudar e ajude, ajudar o próximo é sim alimento para alma, entretanto, não espere gratidão, mas aproveite cada sorriso que lhe for dado, cada abraço, cada beijo, cada lágrima, cada palavra… ter pessoas gratas ao seu lado é a garantia de que quando menos você esperar e precisar, você terá com quem contar.  
+  
+Invista ao máximo em você, saiba que a vida irá sempre te cobrar e te testar, tenha a certeza do que é bom e do que é ruim para você, do que é certo e do que é errado, busque o bom e faça o certo. Tenha a certeza que ter um corpo saudável lhe trará prosperidade física. Ter conhecimento e sabedoria lhe trará prosperidade financeira . Ajudar o próximo, ter boas relações, se apoiar a alguma religião e respeitar as demais religiões lhe trará prosperidade espiritual. Se você estiver bem com o seu corpo, com a sua mente e com a sua alma, você estará feliz e estará melhor condicionado a enfrentar as adversidades da vida.  
+  
+Quanto às relações amorosas, saiba se controlar e distinguir bem o que é amor, o que é paixão e o que é solidão. Amor é a capacidade de se doar, sem querer nada em troca. Paixão é a sensação de se sentir privilegiado, simplesmente por aquela pessoa estar ao seu lado. Solidão é a ausência de amor e paixão. Sexo independe de tudo isso e torna-se secundário se não acompanhado de amor ou pelo menos paixão. Não queira só amar, mas também ser amado, não viva uma paixão solitária e evite a solidão. Tenha a certeza que o amor pode ser a sua maior fonte de sofrimento, de que a paixão irá te cegar e de que a solidão é uma ótima oportunidade de se avaliar, se ajustar e se aprimorar.  
+  
+Procure não cometer os mesmos erros, utilize o tempo a seu favor, não se cobre ao ponto de se prejudicar, se perdoe, perdoe e siga em frente.  
+  
+Por mais absurdo que possa parecer viver, você vive, então faça direito.
