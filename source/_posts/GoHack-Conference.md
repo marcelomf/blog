@@ -1,14 +1,14 @@
 ---
-title: H2SC - Hackers to Society Conference
+title: GoHack Conference
 tags: []
 excerpt: >-
   <p>Estamos criando uma nova conferência de segurança no
   Brasil!&nbsp;</p><p>Acesse:&nbsp;<a
-  href="https://www.h2sc.com.br/">https://www.h2sc.com.br/</a></p>
-date: 2022-10-22 00:15:00
+  href="https://gohack.com.br/">https://gohack.com.br/</a></p>
+date: 2022-11-08 00:15:00
 ---
 
 Estamos criando uma nova conferência de segurança no Brasil! 
 
-Acesse: [https://www.h2sc.com.br/](https://www.h2sc.com.br/)
+Acesse: [https://gohack.com.br/](https://gohack.com.br/)
 <!-- more -->
