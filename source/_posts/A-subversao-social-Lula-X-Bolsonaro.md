@@ -1,5 +1,5 @@
 ---
-title: A subversão social. Lula X Bolsonaro! (Versão revisada)
+title: A subversão social. Lula X Bolsonaro!
 tags: []
 excerpt: >-
   <div>Para entender o que é subversão, vamos relembrar o caso da Guerra de
